@@ -1,3 +1,3 @@
 # My Resume
 
-[Link](https://popovkov57.github.io/popovkov57/)
+[Link](https://kpatrzek.github.io/kpatrzek/)
